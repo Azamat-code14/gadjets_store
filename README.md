@@ -1,0 +1,1 @@
+# gadjets_store
